@@ -7,8 +7,4 @@ Meu nome é maisa dos santos
 - Utilizo esse espaço para compartilhamento dos meus projetos desenvolvidos 
 
 
-
-/>![image](https://github.com/maisa020/maisa020/assets/173706695/2b4ba37c-8a7e-4b49-b5af-3fedb6f4eeb6)
-
-
 />![image](https://github.com/maisa020/maisa020/assets/173706695/ff98ac0c-5fd5-408d-8271-6b52133aca0f)
